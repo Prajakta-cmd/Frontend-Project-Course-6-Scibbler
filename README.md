@@ -1,1 +1,0 @@
-# Frontend-Project-Course-6-Scibbler
